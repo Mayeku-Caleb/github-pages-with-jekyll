@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Welcome to JAYMAC AUTOMOTIVES
 
-I'm glad you are here. I plan to talk about ...
+        WE ARE THE HOME OF ALL GEARS
+          OWN IT! DRIVE IT!
